@@ -1,2 +1,0 @@
-# diwalitravel
-DiwaliTravel.com
